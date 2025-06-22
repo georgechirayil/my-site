@@ -21,3 +21,10 @@ situation of man."
 
 Around 2000 trains started to ne electric trains.A company called
 Amtrak was partnering up with Siemens to make a high tech train which
+electric in 2017 called Siemens charger it first was in service in 2022
+and on
+
+# Conclusion 
+
+ So trains can have many features on their path they can
+maybe develop flights like airplanes soon.
