@@ -19,3 +19,5 @@ situation of man."
 
 # 20th century trains 
 
+Around 2000 trains started to ne electric trains.A company called
+Amtrak was partnering up with Siemens to make a high tech train which
